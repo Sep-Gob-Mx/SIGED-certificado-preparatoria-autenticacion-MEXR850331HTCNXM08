@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MEXR850331HTCNXM08
+MEXR850331HTCNXM08
